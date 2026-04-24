@@ -1,4 +1,4 @@
-https://tenor.com/view/divider-discord-yellow-line-divider-yellow-line-gif-25279197
+
 
 
 ${{\color{#EEBA0B}{\textsf{ ִֶָ. ..𓂃 ࣪this acc is for my brandonworks cosplays specifically ִ ִֶָ🪽་༘࿐ }}}}$
